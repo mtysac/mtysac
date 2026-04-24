@@ -1,5 +1,4 @@
-Hi 👋, I'm Maria
-A first-year BSc student eager to learn new things and I'm currently enjoying spring/summer break!
+Hi! 👋 I'm Maria, a first-year BSc student eager to learn new things and I'm currently enjoying spring/summer break!
 
 
 ## 🌐 Socials:
